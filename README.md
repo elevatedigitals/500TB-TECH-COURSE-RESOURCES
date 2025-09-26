@@ -1,4 +1,9 @@
 # 500TB-TECH-COURSE-RESOURCES
+
+90% OFF PROMO!!!!!!|!!!
+
+CLICK ON THE LINK BELLOW TO ACCESS IT NOW!!!!! https://paystack.shop/pay/500tbitcources
+
 🚀 Unlock the Ultimate Knowledge Vault: 500TB of Expert-Curated Learning Resources
 An Expert compiled this awesome collection to fast-track your growth!
 
